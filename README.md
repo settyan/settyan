@@ -1,1 +1,1 @@
-<p><img src="https://qruppo.com/products/nukitashi/img/character/character10.png" /></p>
+<H1>マヂムリ留年スル</h1>
